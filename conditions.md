@@ -1,1 +1,1 @@
-be free
+be cool
